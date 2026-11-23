@@ -1,1 +1,1 @@
-# Zadanie-podsumowuj-ce-sem1
+# Zadanie-podsumowujace-sem1
